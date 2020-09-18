@@ -2,7 +2,7 @@
 # Kekeev Semen Sergeevich
 ------
 # Adress: 
-  *St.Nijegorodskaya 32 Moscow Russia.*  
+  *St.Nijegorodskaya 30 Moscow Russia.*  
 # MoBile:
 +79773822378
 # Email: 
